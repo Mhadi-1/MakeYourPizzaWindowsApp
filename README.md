@@ -1,1 +1,1 @@
-Order your favorite pizza with customizable options for dining or takeou
+Order your pizza with customizable options for dining or takeou
